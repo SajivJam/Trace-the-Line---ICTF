@@ -2,4 +2,4 @@
 
 Welcome to my challenge
 
-Try to look around and see what you can find.
+Try to look around and see what links you can find.
